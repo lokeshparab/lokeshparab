@@ -10,7 +10,7 @@
 
 - 📄 Know about my experiences [Resume is here 😁](https://drive.google.com/file/d/1h_40FQkuGFanB79Q_GpAetTTL08J08TW/view?usp=sharing)
 
-- ⚡ Fun fact **I am InCreDible 😎**
+- ⚡ Fun fact **I have InCreDible sense of humour 😁 at workplace**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
