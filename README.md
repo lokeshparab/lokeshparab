@@ -6,7 +6,7 @@
 
 - 💬 Ask me about **Computer Architechture, Python, Data Science**
 
-- 📫 How to reach me **lokeshparab45@gmail.com**
+- 📫 How to reach me [**in just a click 👈**](lokeshparab45@gmail.com)
 
 - 📄 Know about my experiences [Resume is here 😁](https://drive.google.com/file/d/1h_40FQkuGFanB79Q_GpAetTTL08J08TW/view?usp=sharing)
 
