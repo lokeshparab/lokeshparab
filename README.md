@@ -8,7 +8,7 @@
 
 - 📫 How to reach me [**in just a click 👈**](lokeshparab45@gmail.com)
 
-- 📄 Know about my experiences [Resume is here 😁](https://drive.google.com/file/d/1JdrZ6cSuQ1pSYciqOKnShlHo_mfOtpFS/view?usp=sharing)
+- 📄 Know about my experiences [Resume is here 😁](https://drive.google.com/file/d/1J8-gYt5DXqjeyja4a7a-Bsy9cVE4w1PQ/view?usp=share_link)
 
 - ⚡ Fun fact **I have InCreDible sense of humour 😁 at workplace**
 
