@@ -1,10 +1,10 @@
 ![MasterHead](Artwork.jpg)
 <h1 align="center">Hi 👋, I'm Lokesh Parab</h1>
-<h3 align="center">A passionate Python Developer from India</h3>
+<h3 align="center">A passionate Data Scientist from India</h3>
 
-- 🌱 I’m currently learning **Tableau, MS Excel**
+- 🌱 I’m currently learning **GenAI & DeepLearning**
 
-- 💬 Ask me about **Computer Architechture, Python, Data Science**
+- 💬 Ask me about **Python, Machine Learning, Data Science, GenAI, Transformer**
 
 - 📫 How to reach me [**in just a click 👈**](lokeshparab45@gmail.com)
 
